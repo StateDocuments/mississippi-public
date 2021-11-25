@@ -1,6 +1,0 @@
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/mississippi-public/blob/main/coulter.jpg)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/mississippi-public/blob/main/einsteinatanderson.jpg)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/mississippi-public/blob/main/freshii.jpg)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/mississippi-public/blob/main/raisingcanes.jpg)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/mississippi-public/blob/main/rebelradio.jpg)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/mississippi-public/blob/main/steakandshake.jpg)
